@@ -1,3 +1,5 @@
+![Anh Bs Thanh 4x6](https://github.com/Sale-Office365/BsNguyenChiThanh/assets/103977676/50686b57-edd9-4dcc-9482-f7672df9365f)
+
 # BSCK1 Nguyễn Chí Thành #
 
 ## THỜI NIÊN THIẾU ##
