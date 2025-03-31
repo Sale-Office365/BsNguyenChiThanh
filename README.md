@@ -31,14 +31,17 @@
   -  Ngày 22/12/2002 (19/11/2002 Âm lịch) là ngày đám cưới của tôi, thế mà chỉ cho nghỉ đúng 3 ngày, xin thêm 2 ngày nữa cũng chả được, sau đám cưới tôi phải đưa vợ về trạm y tế tiếp tục công tác, vợ tôi ở đó đến hết tuần rồi về tiếp tục dạy học tại trường THPT Đầm Dơi.
   -  Công tác ở đó 2 năm, trong quá trình công tác tôi tha thiết xin trở về TTYT nhưng lãnh đạo không cho, nói cắm tôi ở đó lâu hơn, chừng nào có bác sĩ sẽ cho thay thế rồi rút tôi về (biết bao giờ mới về cơ chứ...), để được quay về lại TTYT tôi phải ghiến răng làm nhiều điều mà mình không muốn làm, tháng 8/2005 được quay về TTYT làm tại Khoa Khám bệnh (năm đó suýt tí nữa là nhận tờ kỹ luật, thay vào đó là xét thi đua chỉ hoàn thành nhiệm vụ)
   -  Sau một thời gian dài đầy vất vả gian truân, ngày 04/4/2008 được bổ nhiệm làm phó Khoa Nội tổng hợp, 30/4/2008 kết nạp vào Đảng Cộng sản Việt Nam. Tôi thấy mình có năng khiếu trong lĩnh vực cấp cứu nên tôi đã xin được về làm khoa CC-HSTC-CĐ, làm phó khoa ở đây từ 30/9/2009 đến 2016, ngày 21/11/2016 đến nay làm trưởng khoa CC-HSTC-CĐ.
+  -  Còn tiếp tục cập nhật...  
 
 ### Vợ:
 - Lê Thị Trang, Sinh ngày 20/3/1977, Quê ở Hoàng Sơn, Nông Cống, Thanh Hóa.
 - Ra trường đại học năm 2001, làm giáo viên ngữ văn trường THPT Đầm Dơi.
+- Còn tiếp tục cập nhật...  
 
 ### Con:
 - Nguyễn Lê Thái Bảo, Sinh ngày 10/02/2004.
 - Hiện là sinh viên
+- Còn tiếp tục cập nhật...  
 
 ### VỀ ĐẢNG: ###
 - 30/4/2008 Kết nạp vào Đảng Cộng sản Việt Nam.
@@ -69,7 +72,7 @@
 - Nhiều giấy khen chiến sĩ thi đua cấp cơ sở.
 - Bốn bằng khen của UBND Tỉnh.
 - Một bằng khen của Thủ tướng.
- - Còn tiếp tục cập nhật. 
+ - Còn tiếp tục cập nhật...
 
 ### VỀ CHÍNH QUYỀN ###
 - Tháng 4/2005 làm trưởng trạm y tế xã Tân Đức, Đầm Dơi, Cà Mau.
@@ -80,4 +83,11 @@
 ### Thời kì quá 2/3 đời người:
   - Rất mệt mỏi vì cuộc sống cơm áo gạo tiền.
   - Mệt mỏi vì danh vọng và địa vị, muốn buông bỏ tất cả để trở lại một cuộc sống an bình, sáng đi làm chiều về ngủ một giấc cùng vợ là không gì bằng. Sống bôn chen làm cho đầu óc bắt đầu căng thẳng, tưởng chừng như không thể vượt qua.
-  
+ - Còn tiếp tục cập nhật...  
+
+### Tâm nguyện lúc tuổi già.
+  - Đời người đâu ai thoát khỏi quy luật của tạo hóa: **sinh, lão, bệnh, tử** nếu một mai tôi già cõi và chết đi, hãy thiêu và tro cốt vãi ra biển để được quay về với cát bụi.
+  - Nếu sống một đời sống thực vật thì hãy cho tôi một cái chết nhân đạo, để tôi ra đi thanh thản, không gánh nặng cho gia đình và cho xã hội.
+  - Xin cảm ơn tất cả!
+
+
