@@ -1,4 +1,4 @@
-![Anh Bs Thanh 4x6](https://github.com/Sale-Office365/BsNguyenChiThanh/assets/103977676/50686b57-edd9-4dcc-9482-f7672df9365f)
+![Ản Bs Thành 4x6](https://github.com/user-attachments/assets/b355f750-c50b-409b-91a1-2a6f218b5211)
 
 # BSCK1 Nguyễn Chí Thành #
 
@@ -12,8 +12,11 @@
 - Thi đậu vào Khối Sinh học Khóa 20 Trường Đại học Cấn Thơ, Khu 2 đường 3/2 thành phố Cần Thơ. Thuở ấy đào tào theo chương trình hợp tác với Đại học Hà Lan; giai đoạn 1: học đại học cơ sở thời gian 1,5 năm, sau khi hoàn tất sinh viên được đăng kí dự thi vào giai đoạn 2 (gồm nhiều ngành của khối Sinh học như: Bác sĩ đa khoa, Nha, chế biến, nuôi trồng thủy sản, chăn nuôi thú y...). Đó mới chính là một cuộc cạnh tranh đầy khốc liệt của tôi, một ý chí hết sức dị thường.
   -  Giai đoạn 1: Mới bước vào trường chân ướt chân ráo, nhà trường dạy ngoại ngữ là môn bắt buộc 10 tín chỉ, trong khi tôi 12 năm phổ thông chả được học một ngày ngoại ngữ. Những đứa bạn tôi có đứa chạy vô phòng đào tạo đăng kí học ngoại ngữ "Pháp văn" thì học chứng trình từ đầu, từ vỡ lòng lên còn tôi không đăng kí được phải học ngoại ngữ "Anh văn", vô lớp học ngày đầu tiên cô giáo dạy giáo trình "English For Today- Book three" nói toàn là Tiếng Anh không có một câu Tiếng Việt, tôi nổi đom đóm mắt; quyết định trốn học giờ Anh văn, ra ngoài trung tâm học "Anh văn từ đầu" nhưng vì không có tiền nên đành học chui nhủi hôm nào không kiểm tra lai học phí thì mừng, hôm nào có kiểm tra thì trốn trong ngóc ngách của trung tâm chờ qua tiết dạy lại vào lớp khác, thật là gian nan.
   -  Ngày đầu tiên học giáo trình tại trung tâm với "Streamline English Book one", tôi còn nhớ rõ như in bài đầu tiên:
+
      ![image](https://github.com/Bsck1NgChiThanh/BsNguyenChiThanh/assets/140607849/6c53320b-bb96-4b4e-8bae-a2d316673fd5)
+     
      ![image](https://github.com/Bsck1NgChiThanh/BsNguyenChiThanh/assets/140607849/d5e64155-7aa6-4515-9926-ff84e34a2e00)
+     
   -  Chỉ có thế thôi mà học 1 tuần chả thuộc, cứ học trước quên sau, học sau quên trước, đau lòng.
   -  Bằng sự miệt mài đến cuối học kì 1 của giai đoạn 1, tôi thi cuối kì "English For Today- Book three" với số điểm 4 (vừa đủ điểm qua môn theo qui định của trường), đúng là một nổ lực xứng đáng được đền đáp. Tuy nhiên phải trả một giá đắc là nợ lại một số môn cơ bản mà chậm lại 2 học kì mới đủ điều kiện thi chuyển giai đoạn 2.
   -  Còn rất nhiều gian nan trong giai đoạn 1 này, cụ thể hơn là môn Vật lý đại cương $A_{2}$ ôi chao nó khó lắm, tôi chỉ học 3 bài tập ví dụ của thầy, rất hên khi thi kết thúc đề thi ra trúng 2 bài trong 3 bài đó, đạt điểm 5. Hóa vô cơ và hữu cơ của thầy Chu Phạm Ngọc Sơn cũng không kém phần giày vò đau đớn, cuối kì cũng hên qua môn một cách thần kì. Còn một môn không khó nhưng lý thuyết khá dài đó là Sinh học đại cương $A_{2}$, vì bỏ thời gian đầu tư cho môn Tiếng Anh nên môn này qua môn cũng khá chật vật.
@@ -48,7 +51,8 @@
 - 30/4/2009 Chuyển chính thức.
 - Làm phó bí thư chi bộ Khoa Khám bệnh khóa VI (2010-2012), năm 2011 đi học tập trung chuyên khoa cấp 1 Nội tổng quát nên thôi giữ chức phó bí thư.
 - Làm bí thư chi bộ Khoa Khám bệnh khóa IX, X, XI, XII (2017-2020; 2020-2023; 2023-2025; 2025-2027)
-- Năm 20/3/2018 được bầu bổ sung vào đảng ủy viên  Bệnh viện Khóa VI nhiệm kì 2015-2020, trúng cử đảng ủy viên Khóa VII nhiệm kì 2020-2025.
+- Năm 20/3/2018 được bầu bổ sung vào đảng ủy viên  Bệnh viện Khóa VI nhiệm kì 2015-2020, trúng cử đảng ủy viên Khóa VII nhiệm kì 2020-2025, đảng ủy viên Khóa VIII nhiệm kì 2025-2030.
+
 ### VỀ CHUYÊN MÔN NGHIỆP VỤ: ###
 - Tốt nghiệp bác sĩ đa khoa chính quy 7/2001.
 - Lấy chứng chỉ C Anh văn 9/2011
@@ -59,20 +63,25 @@
 - Hoàn thành lớp hoàn chỉnh trung cấp chính trị 06/2018.
 - Lấy băng B1 Anh văn 8/2019.
 - Lấy chứng chỉ hạn chức danh nghề nghiệp 8/2023.
+- Tháng 4/2026 thăng lên bác sĩ hạng II
+
 ### NĂNG KHIẾU: ###
 - Có nhiều năng khiếu:
-  - Về tin học là một Admin năng khiếu, một chuyên gia github thực thụ, một tay chuyên cài windows thực dụng... (trang Web cá nhân: https://sites.google.com/view/bsnguyenchithanh, trang github: https://github.com/BsChiThanh, trang Web của khoa: https://sites.google.com/view/khoacapcuubvdamdoi ...)
+  - Về tin học là một Admin năng khiếu, một chuyên gia github thực thụ, một tay chuyên cài windows thực dụng... (trang Web cá nhân: https://sites.google.com/view/bsnguyenchithanh, trang github: https://github.com/Bsck1NgChiThanh , trang Web của khoa: https://sites.google.com/view/khoacapcuubvdamdoi ...)
   - Có năng khiếu về giảng dạy truyền thụ kiến thức.
   - Đang tập tành học thêm năng khiếu quan hệ công chúng.
   - ...
   - Còn nhiều!
 - Không có năng khiếu về âm nhạc, đây là điều làm tôi phải thẹn!
+
 ### VỀ KHEN THƯỞNG VÀ KỶ LUẬT: ###
 - Rất nhiều giấy biểu dương.
 - Nhiều giấy khen chiến sĩ thi đua cấp cơ sở.
 - Bốn bằng khen của UBND Tỉnh.
 - Một bằng khen của Thủ tướng.
- - Còn tiếp tục cập nhật...
+- Đang xét tặng: Huân chương Lao động hạng Ba
+- Đang xét tặng Thầy thuốc ưu tú
+- Còn tiếp tục cập nhật...
 
 ### VỀ CHÍNH QUYỀN ###
 - Tháng 4/2005 làm trưởng trạm y tế xã Tân Đức, Đầm Dơi, Cà Mau.
