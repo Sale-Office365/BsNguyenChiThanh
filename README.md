@@ -128,7 +128,11 @@
 ### Thời kì quá 2/3 đời người:
 
 <p align="justify">
-&#12288;&#12288;Rất mệt mỏi vì cuộc sống cơm áo gạo tiền. Mệt mỏi vì danh vọng và địa vị, muốn buông bỏ tất cả để trở lại một cuộc sống an bình, sáng đi làm chiều về ngủ một giấc cùng vợ là không gì bằng. Sống bôn chen làm cho đầu óc bắt đầu căng thẳng, tưởng chừng như không thể vượt qua. Còn tiếp tục cập nhật...
+&#12288;&#12288;Khi đã đi qua hơn hai phần ba chặng đường cuộc đời, tôi bắt đầu nhìn mọi việc bằng một góc nhìn khác. Những khát vọng của tuổi trẻ về thành công, danh vọng hay vị trí công tác dần nhường chỗ cho mong muốn được sống bình yên, khỏe mạnh và hạnh phúc bên những người thân yêu. Sau nhiều năm miệt mài với công việc chuyên môn, quản lý, học tập và phấn đấu, có những lúc cảm thấy mệt mỏi trước những áp lực của cuộc sống, những lo toan thường nhật và những trách nhiệm ngày càng lớn. Cuộc sống bon chen đôi khi khiến tâm trí nặng nề, tưởng như khó tìm được sự cân bằng giữa công việc và cuộc sống riêng. Thế nhưng, chính những trải nghiệm ấy đã giúp tôi nhận ra rằng điều quý giá nhất không phải là chức vụ hay những lời ngợi khen, mà là sự bình an trong tâm hồn, sức khỏe của bản thân và niềm hạnh phúc giản dị của gia đình. Ngày nay, tôi trân trọng hơn những khoảnh khắc đời thường: một buổi sáng đến cơ quan làm việc với tinh thần thoải mái, một buổi chiều trở về nhà, được nghỉ ngơi và quây quần bên người bạn đời đã cùng mình đi qua biết bao thăng trầm của cuộc sống.
+</p>
+
+<p align="justify">
+&#12288;&#12288;Ở giai đoạn này của cuộc đời, tôi không còn quá nặng lòng với được mất, hơn thua, mà hướng đến sự thanh thản, cân bằng và những giá trị bền vững. Vẫn tiếp tục làm việc, tiếp tục cống hiến trong khả năng của mình, nhưng với tâm thế nhẹ nhàng hơn, biết đủ hơn và biết trân trọng những gì đang có. Cuộc đời là một hành trình không ngừng học hỏi. Khi tuổi đời ngày một nhiều hơn, điều tôi mong muốn nhất không phải là đi nhanh hơn người khác, mà là sống chậm lại để cảm nhận trọn vẹn ý nghĩa của mỗi ngày được sống. Còn tiếp tục cập nhật...
 </p>
 
 ### Tâm nguyện lúc tuổi già.
