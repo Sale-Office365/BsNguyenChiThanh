@@ -174,8 +174,13 @@
 ### Tâm nguyện lúc tuổi già.
 
 <p align="justify">
-&#12288;&#12288;Đời người đâu ai thoát khỏi quy luật của tạo hóa: sinh, lão, bệnh, tử. Nếu một mai tôi già cõi và chết đi, hãy thiêu và tro cốt vãi ra biển để được quay về với cát bụi. Nếu sống một đời sống thực vật thì hãy cho tôi một cái chết nhân đạo, để tôi ra đi thanh thản, không gánh nặng cho gia đình và cho xã hội. Xin cảm ơn tất cả!
+&#12288;&#12288;Đời người là một hành trình hữu hạn. Ai rồi cũng phải đi qua quy luật tự nhiên của tạo hóa: sinh, lão, bệnh, tử. Sau một đời học tập, lao động, cống hiến và trải nghiệm, điều tôi mong muốn nhất khi bước vào những năm tháng cuối đời là được sống bình an, thanh thản, không còn vướng bận bởi danh lợi hay những hơn thua của cuộc sống. Nếu một ngày nào đó phải rời xa cõi tạm này, nguyện vọng của tôi là được hỏa táng và rải tro cốt về với biển cả, để thân xác trở về với tự nhiên, hòa vào đất trời, cát bụi, đúng như quy luật vốn có của cuộc đời. Nếu không may tuổi già chỉ còn là những ngày dài bệnh tật, sống phụ thuộc hoàn toàn vào máy móc hoặc không còn khả năng nhận biết, giao tiếp với những người thân yêu, tôi mong được ra đi một cách nhẹ nhàng và thanh thản, với sự tôn trọng nhân phẩm, tình yêu thương và sự chăm sóc tận tình của gia đình cùng đội ngũ y tế. Điều tôi luôn trăn trở là không muốn trở thành gánh nặng về tinh thần và vật chất cho những người mình yêu thương.
 </p>
 
+<p align="justify">
+&#12288;&#12288;Nhìn lại chặng đường đã qua, tôi biết ơn cha mẹ đã sinh thành, biết ơn gia đình đã đồng hành, biết ơn thầy cô, đồng nghiệp, bạn bè và những người bệnh đã cho tôi cơ hội được học hỏi, trưởng thành và sống một cuộc đời có ý nghĩa. Những gì đạt được trong cuộc đời này đều là nhờ sự giúp đỡ, sẻ chia và yêu thương của rất nhiều người. Khi nhắm mắt xuôi tay, tôi không mong được nhớ đến bởi chức vụ, bằng khen hay danh hiệu, mà chỉ mong mọi người nhớ rằng tôi đã cố gắng sống tử tế, làm việc tận tâm và yêu thương chân thành.
+</p>
 
-
+<p align="justify">
+&#12288;&#12288;Sinh ra là để cống hiến, sống là để yêu thương, và ra đi trong sự bình an có lẽ là món quà đẹp nhất mà cuộc đời dành cho mỗi con người. Xin chân thành cảm ơn tất cả những người đã từng đồng hành cùng tôi trên suốt hành trình cuộc sống.
+</p>
