@@ -104,15 +104,19 @@
 ### VỀ KHEN THƯỞNG VÀ KỶ LUẬT: ###
 
  <p align="justify">
-&#12288;&#12288;Rất nhiều giấy biểu dương. Nhiều giấy khen chiến sĩ thi đua cấp cơ sở. Bốn bằng khen của UBND Tỉnh. Một bằng khen của Thủ tướng. Nhận Kỷ niệm chương "Vì sức khỏe nhân dân" năm 2026 (quyết định bấm vào link sau https://drive.google.com/file/d/102e9Xsme0ovt7d1TQRjAqfnWbc9kncrt/view?usp=drive_link)
+&#12288;&#12288;Trong suốt quá trình công tác, bản thân luôn nỗ lực phấn đấu, hoàn thành tốt và hoàn thành xuất sắc các nhiệm vụ được giao. Những cố gắng đó đã được ghi nhận bằng nhiều hình thức khen thưởng từ đơn vị, ngành và địa phương. Đã được nhận nhiều Giấy biểu dương, Giấy khen và nhiều năm liền đạt danh hiệu Chiến sĩ thi đua cơ sở. Bên cạnh đó, được Ủy ban nhân dân tỉnh Cà Mau tặng 04 Bằng khen vì những thành tích xuất sắc trong công tác và phong trào thi đua yêu nước. Đặc biệt, vinh dự được Thủ tướng Chính phủ tặng Bằng khen, ghi nhận những đóng góp tích cực, liên tục và hiệu quả trong lĩnh vực y tế và hoạt động chuyên môn. 
+</p>
+   
+<p align="justify">
+&#12288;&#12288;Năm 2026, được Bộ Y tế trao tặng Kỷ niệm chương "Vì sức khỏe nhân dân", phần thưởng cao quý dành cho những cá nhân có nhiều năm cống hiến cho sự nghiệp bảo vệ, chăm sóc và nâng cao sức khỏe nhân dân (quyết định bấm vào link sau https://drive.google.com/file/d/102e9Xsme0ovt7d1TQRjAqfnWbc9kncrt/view?usp=drive_link). Hiện nay, hồ sơ cá nhân đang được các cấp có thẩm quyền xem xét, đề nghị:
 </p>
     
 Đang xét tặng: [Huân chương Lao động hạng Ba](https://camau.gov.vn/thong-tin-thi-dua-khen-thuong/lay-y-kien-nhan-dan-doi-voi-15-ca-nhan-de-nghi-tang-thuong-huan-chuong-lao-dong-301599). 
 
-Đang xét tặng: [Thầy thuốc ưu tú](https://camau.gov.vn/tin-tuc-su-kien/33-ho-so-duoc-hoi-dong-cap-tinh-de-nghi-xet-tang-danh-hieu-thay-thuoc-nhan-dan-thay-thuoc-uu-tu-304506?fbclid=IwdGRzaATpJyhjbGNrBOknCXBkb2YBZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMzUwNjg1NTMxNzI4AAEeAgNTIo76y0SsOFc2Sv0rEFuXSoOfF1WVVHWAXXJ1PvPwuuuTl0DMfxbpFm8_aem_MiBrIc9Z6C_21URDUxx7ag).
+Đang xét phong tặng: [Thầy thuốc ưu tú](https://camau.gov.vn/tin-tuc-su-kien/33-ho-so-duoc-hoi-dong-cap-tinh-de-nghi-xet-tang-danh-hieu-thay-thuoc-nhan-dan-thay-thuoc-uu-tu-304506?fbclid=IwdGRzaATpJyhjbGNrBOknCXBkb2YBZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMzUwNjg1NTMxNzI4AAEeAgNTIo76y0SsOFc2Sv0rEFuXSoOfF1WVVHWAXXJ1PvPwuuuTl0DMfxbpFm8_aem_MiBrIc9Z6C_21URDUxx7ag).
 
  <p align="justify">
-&#12288;&#12288;Còn tiếp tục cập nhật...
+&#12288;&#12288;Đây là những nguồn động viên to lớn để bản thân tiếp tục rèn luyện phẩm chất, nâng cao trình độ chuyên môn, nghiệp vụ, giữ vững y đức người thầy thuốc và đóng góp nhiều hơn nữa cho sự nghiệp chăm sóc sức khỏe nhân dân. Kỷ luật: Trong suốt quá trình công tác, bản thân luôn chấp hành nghiêm chủ trương của Đảng, chính sách, pháp luật của Nhà nước, các quy định của ngành và đơn vị; không bị xử lý kỷ luật dưới bất kỳ hình thức nào. Thành tích khen thưởng vẫn đang tiếp tục được cập nhật theo từng giai đoạn công tác.
 </p>
  
 ### VỀ CHÍNH QUYỀN ###
