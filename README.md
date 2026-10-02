@@ -86,8 +86,28 @@
 ### VỀ ĐẢNG: ###
 
 <p align="justify">
-&#12288;&#12288;30/4/2008 Kết nạp vào Đảng Cộng sản Việt Nam. 30/4/2009 Chuyển chính thức. Làm phó bí thư chi bộ Khoa Khám bệnh khóa VI (2010-2012), năm 2011 đi học tập trung chuyên khoa cấp 1 Nội tổng quát nên thôi giữ chức phó bí thư. Làm bí thư chi bộ Khoa Khám bệnh khóa IX, X, XI, XII (2017-2020; 2020-2023; 2023-2025; 2025-2027). Năm 20/3/2018 được bầu bổ sung vào đảng ủy viên  Bệnh viện Khóa VI nhiệm kì 2015-2020, trúng cử đảng ủy viên Khóa VII nhiệm kì 2020-2025, đảng ủy viên Khóa VIII nhiệm kì 2025-2030.
-</p>    
+&#12288;&#12288;Bản thân vinh dự được kết nạp vào Đảng Cộng sản Việt Nam ngày 30/4/2008 và được công nhận đảng viên chính thức ngày 30/4/2009. Trong suốt quá trình sinh hoạt Đảng, luôn giữ vững phẩm chất chính trị, đạo đức, lối sống của người đảng viên; chấp hành nghiêm Cương lĩnh, Điều lệ Đảng, chủ trương, nghị quyết của Đảng, chính sách, pháp luật của Nhà nước; tích cực tham gia xây dựng tổ chức đảng trong sạch, vững mạnh.
+</p>  
+
+<p align="justify">
+&#12288;&#12288;Từ năm 2010 đến năm 2012, được tín nhiệm bầu giữ chức vụ Phó Bí thư Chi bộ Khoa Khám bệnh khóa VI. Năm 2011, do tham gia học tập trung chương trình Bác sĩ Chuyên khoa cấp I Nội tổng quát, bản thân xin thôi giữ chức vụ để tập trung hoàn thành nhiệm vụ học tập theo yêu cầu chuyên môn.
+</p>  
+
+<p align="justify">
+&#12288;&#12288;Sau quá trình công tác và rèn luyện, bản thân tiếp tục được đảng viên trong chi bộ tín nhiệm bầu giữ chức vụ Bí thư Chi bộ Khoa Khám bệnh liên tục qua các nhiệm kỳ: Khóa IX (2017 - 2020); Khóa X (2020 - 2023); Khóa XI (2023 - 2025); Khóa XII (2025 - 2027). Trên cương vị Bí thư Chi bộ, luôn phát huy vai trò hạt nhân lãnh đạo, cùng tập thể cấp ủy xây dựng chi bộ đoàn kết, thống nhất, hoàn thành tốt nhiệm vụ chính trị được giao; quan tâm công tác giáo dục chính trị tư tưởng, xây dựng đội ngũ đảng viên gương mẫu, nâng cao chất lượng sinh hoạt chi bộ và thực hiện hiệu quả các nghị quyết của Đảng gắn với nhiệm vụ chuyên môn của đơn vị.
+</p>  
+
+<p align="justify">
+&#12288;&#12288;Ngày 20/3/2018, được bầu bổ sung tham gia Đảng ủy Bệnh viện Đa khoa Đầm Dơi khóa VI, nhiệm kỳ 2015 - 2020. Tiếp đó, được Đại hội Đảng bộ bệnh viện tín nhiệm bầu giữ chức vụ Đảng ủy viên khóa VII, nhiệm kỳ 2020 - 2025 và Đảng ủy viên khóa VIII, nhiệm kỳ 2025 - 2030.
+</p>  
+
+<p align="justify">
+&#12288;&#12288;Việc liên tục được tín nhiệm giao đảm nhiệm các chức vụ trong cấp ủy chi bộ và Đảng ủy bệnh viện là niềm vinh dự, đồng thời cũng là trách nhiệm lớn lao để bản thân không ngừng rèn luyện bản lĩnh chính trị, phẩm chất đạo đức, lối sống và năng lực lãnh đạo, quản lý; góp phần xây dựng tổ chức đảng trong sạch, vững mạnh, nâng cao chất lượng hoạt động chuyên môn và phục vụ ngày càng tốt hơn nhiệm vụ chăm sóc, bảo vệ sức khỏe nhân dân.
+</p>  
+
+<p align="justify">
+&#12288;&#12288;Trong nhiều năm liền, bản thân được đánh giá là đảng viên hoàn thành tốt nhiệm vụ và hoàn thành xuất sắc nhiệm vụ, luôn giữ vững tư cách, phẩm chất của người đảng viên Đảng Cộng sản Việt Nam, gương mẫu trong công tác chuyên môn cũng như trong các phong trào thi đua của cơ quan, đơn vị.
+</p>  
 
 ### VỀ CHUYÊN MÔN NGHIỆP VỤ: ###
 
