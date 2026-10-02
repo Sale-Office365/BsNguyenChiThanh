@@ -122,7 +122,43 @@
 ### VỀ CHÍNH QUYỀN ###
 
 <p align="justify">
-&#12288;&#12288;Tháng 4/2005 làm trưởng trạm y tế xã Tân Đức, Đầm Dơi, Cà Mau. Tháng 4/2008 làm phó khoa Nội tổng hợp BV Đa khoa Đầm Dơi. Tháng 9/2009 làm phó khoa CC-HSTC-CĐ. Tháng 11/2016 làm trưởng khoa CC-HSTC-CĐ cho đến nay, khoa liên tục đạt thứ hạn cao trong Bệnh viện, nhiều năm liền khoa đạt TTLĐXS, nhiều bằng khen của UBND Tỉnh,...
+&#12288;&#12288;Trong quá trình công tác, bản thân luôn được cấp trên tin tưởng giao phó nhiều nhiệm vụ lãnh đạo, quản lý ở các đơn vị và vị trí khác nhau. Mỗi giai đoạn công tác đều là cơ hội để rèn luyện bản lĩnh, tích lũy kinh nghiệm quản lý và nâng cao năng lực tổ chức, điều hành. 
+</p>
+
+<p align="justify">
+&#12288;&#12288;Tháng 4 năm 2005, được bổ nhiệm giữ chức vụ Trưởng Trạm Y tế xã Tân Đức, huyện Đầm Dơi, tỉnh Cà Mau. Trong thời gian đảm nhiệm cương vị này, bản thân đã cùng tập thể đơn vị triển khai hiệu quả các chương trình y tế quốc gia, công tác chăm sóc sức khỏe ban đầu, phòng chống dịch bệnh và các hoạt động y tế cộng đồng, góp phần nâng cao chất lượng chăm sóc sức khỏe nhân dân tại địa phương.
+</p>
+
+<p align="justify">
+&#12288;&#12288;Tháng 4 năm 2008, được bổ nhiệm giữ chức vụ Phó Trưởng khoa Nội tổng hợp, Bệnh viện Đa khoa Đầm Dơi. Trên cương vị mới, bản thân tích cực tham gia công tác quản lý chuyên môn, đào tạo nhân lực và nâng cao chất lượng điều trị nội trú, góp phần củng cố hoạt động chuyên môn của khoa.
+</p>
+
+<p align="justify">
+&#12288;&#12288;Tháng 9 năm 2009, được điều động và bổ nhiệm giữ chức vụ Phó Trưởng khoa Cấp cứu - Hồi sức tích cực - Chống độc (CC-HSTC-CĐ). Đây là giai đoạn khoa từng bước phát triển về chuyên môn kỹ thuật, tăng cường năng lực cấp cứu và hồi sức người bệnh nặng. Bản thân đã cùng tập thể khoa xây dựng tinh thần đoàn kết nội bộ, nâng cao trình độ chuyên môn của nhân viên y tế và từng bước hoàn thiện quy trình hoạt động của khoa.
+</p>
+
+<p align="justify">
+&#12288;&#12288;Từ tháng 11 năm 2016 đến nay, được bổ nhiệm giữ chức vụ Trưởng khoa Cấp cứu - Hồi sức tích cực - Chống độc, Bệnh viện Đa khoa Đầm Dơi. Với vai trò người đứng đầu khoa, bản thân luôn xác định nhiệm vụ trọng tâm là xây dựng tập thể đoàn kết, phát triển chuyên môn sâu, lấy người bệnh làm trung tâm và không ngừng đổi mới trong công tác quản lý.
+</p>
+
+<p align="justify">
+&#12288;&#12288;Dưới sự lãnh đạo của tập thể lãnh đạo khoa qua các thời kỳ, Khoa Cấp cứu - Hồi sức tích cực - Chống độc không ngừng phát triển, trở thành một trong những khoa trọng điểm của bệnh viện. Khoa nhiều năm liên tục đạt thứ hạng cao trong các phong trào thi đua, các đợt kiểm tra, đánh giá chất lượng bệnh viện và luôn hoàn thành xuất sắc các chỉ tiêu chuyên môn được giao.
+</p>
+
+<p align="justify">
+&#12288;&#12288;Đặc biệt, tập thể khoa nhiều năm liền được công nhận danh hiệu Tập thể Lao động xuất sắc, được Ủy ban nhân dân tỉnh Cà Mau, Sở Y tế Cà Mau và các cấp, các ngành tặng nhiều Bằng khen, Giấy khen vì những thành tích nổi bật trong công tác khám chữa bệnh, cấp cứu, hồi sức tích cực, phòng chống dịch bệnh và các phong trào thi đua yêu nước.
+</p>
+
+<p align="justify">
+&#12288;&#12288;Bên cạnh công tác quản lý chuyên môn, bản thân còn chú trọng ứng dụng công nghệ thông tin vào hoạt động của khoa, xây dựng các công cụ hỗ trợ chuyên môn, phát triển website khoa, tăng cường truyền thông giáo dục sức khỏe và đẩy mạnh chuyển đổi số trong quản lý, góp phần nâng cao hiệu quả hoạt động và hình ảnh của đơn vị.
+</p>
+
+<p align="justify">
+&#12288;&#12288;Với hơn 20 năm tham gia công tác quản lý trong ngành y tế, bản thân luôn giữ vững phẩm chất của người cán bộ lãnh đạo, gương mẫu trong công việc, tận tụy với người bệnh, đoàn kết với đồng nghiệp và không ngừng học hỏi để đáp ứng yêu cầu phát triển ngày càng cao của ngành y tế trong giai đoạn mới.
+</p>
+
+<p align="justify">
+&#12288;&#12288;Trong suốt quá trình đảm nhiệm các chức vụ lãnh đạo, quản lý, bản thân luôn hoàn thành tốt và hoàn thành xuất sắc nhiệm vụ được giao, góp phần xây dựng đơn vị ngày càng phát triển vững mạnh, đáp ứng tốt nhiệm vụ chăm sóc, bảo vệ và nâng cao sức khỏe nhân dân.
 </p>
 
 ### Thời kì quá 2/3 đời người:
